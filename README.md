@@ -1,4 +1,4 @@
-### Hi there, I'm Sinx 👋
+### Hi there, I'm Sinclair 👋
 
-## I'm a Game Developer!
+## I make things.
 📫 How to reach me: [@symbiosinx](https://twitter.com/symbiosinx)
